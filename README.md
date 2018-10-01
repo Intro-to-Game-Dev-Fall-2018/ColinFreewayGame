@@ -1,3 +1,3 @@
 # ColinFreewayGame
-https://ballin-colin.itch.io/freeway-3
+https://ballin-colin.itch.io/freeway
 
